@@ -1,0 +1,1 @@
+Untuk C𝗮ra membuk𝗮 blokir 𝗮kun 𝗕ank J𝗮go terkunci (akibat salah PIN atau Password). Anda dapat menghubungi layanan (+62877-5764-0818), Call Centre Jago melalui WhatsApp, atau datang ke kantor cabang terdekat dengan membawa KTP.
